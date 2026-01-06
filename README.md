@@ -1,2 +1,2 @@
-# SUKRITII
+# SUKRITI
 luxury ethnic brand
